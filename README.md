@@ -11,6 +11,8 @@ Extra examples, extra files, and feedbacks are constantly posted here. So please
 The Kindle version of the book is now available at:  https://goo.gl/fnp7wC
 
 Regards,
+
 Dr. Abdolreza Abhari
+
 http://www.scs.ryerson.ca/aabhari/
 
